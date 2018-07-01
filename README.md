@@ -9,5 +9,5 @@ Legendsock 2.2
 
 已知问题 无法复制粘贴订阅地址 大家一起修
 
-
+https://github.com/ilovebamboo/WHMCS-Legendsocks-plugin/blob/Legendsocks/WHMCS.png?raw=true
 合购WHMCS V2RAY 模块 一起的 私聊啊 。有人加我私聊嘛？ 现在SSR已经不行了。
