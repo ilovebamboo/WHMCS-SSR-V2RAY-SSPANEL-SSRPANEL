@@ -7,6 +7,6 @@ Legendsock 2.2
 
 有问题ISUSS TG群 https://t.me/joinchat/Gc7hiUtsO-xaftop5NSf8Q
 
-已知问题 无法复制粘贴订阅地址 大家一起修
+出WHMCS 模块
 ![](https://github.com/ilovebamboo/WHMCS-Legendsocks-plugin/blob/Legendsocks/QQ20180702-174013.png)
   
