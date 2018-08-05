@@ -8,8 +8,6 @@ V2RAY 定制900元
 
 有问题ISUSS TG群 https://t.me/joinchat/Gc7hiUtsO-xaftop5NSf8Q
 
-出WHMCS 模块
-![](https://github.com/ilovebamboo/WHMCS-Legendsocks-plugin/blob/Legendsocks/QQ20180702-174013.png)
-  
+出WHMCS 模块看issues  
 ![](https://user-images.githubusercontent.com/6214084/43682262-1329620a-98a2-11e8-8b4a-82f082e02d60.png)
 
