@@ -1,4 +1,4 @@
-# WHMCS7 Legendsock 2.2 Subscription function
+# WHMCS7 Legendsock 3.0 Subscription function
 
 Legendsock 3.0
 
