@@ -1,10 +1,13 @@
-# WHMCS7 Legendsock 2.2 增加订阅功能
-Legendsock 2.2 
+# WHMCS7 Legendsock 2.2 Subscription function
 
-客户端定制演示
-V2RAY 定制900元
+Legendsock 3.0
 
-加了一个订阅复制粘贴的功能
+WHMCS 模板300 SSR 300模块Surge 300订阅 短信中心300 网卡补偿加速
+
+Client custom demo
+V2RAY custom 900 yuan
+
+Added a subscription copy and paste function
 
 有问题ISUSS TG群 https://t.me/joinchat/Gc7hiUtsO-xaftop5NSf8Q
 contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
