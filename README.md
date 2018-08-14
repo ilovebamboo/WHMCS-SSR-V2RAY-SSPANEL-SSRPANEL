@@ -7,6 +7,7 @@ V2RAY 定制900元
 加了一个订阅复制粘贴的功能
 
 有问题ISUSS TG群 https://t.me/joinchat/Gc7hiUtsO-xaftop5NSf8Q
+contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
 
 出WHMCS 模块看issues  
 ![](https://user-images.githubusercontent.com/6214084/43682262-1329620a-98a2-11e8-8b4a-82f082e02d60.png)
