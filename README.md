@@ -18,6 +18,8 @@ contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
 
 出WHMCS 模块看issues  
 
+需要看演示的 安装远程https://www.teamviewer.com/zhCN/ 邀请测试
+
 ![](https://user-images.githubusercontent.com/6214084/44436734-48137d80-a5e9-11e8-9a58-d7635cfb1522.png)
 
 ![artboard2](https://user-images.githubusercontent.com/6214084/44436822-dc7de000-a5e9-11e8-883f-5c3dedea93d1.png)
