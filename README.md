@@ -17,15 +17,14 @@ contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
 开通注册送20美元免费2个月	https://www.linode.com/?r=2cece9213a6c08d94a1b64bb994d445962f52f19
 
 出WHMCS 模块看issues  
-![](https://user-images.githubusercontent.com/6214084/44065117-7a3c65c8-9f9b-11e8-8f99-5571f4c93047.png)
+
+![](https://user-images.githubusercontent.com/6214084/44436734-48137d80-a5e9-11e8-9a58-d7635cfb1522.png)
+
+![](https://user-images.githubusercontent.com/6214084/44436737-4d70c800-a5e9-11e8-8455-32dbd57478e4.png)
 
 定制各类客户端
 ![](https://user-images.githubusercontent.com/6214084/44435046-bd2e8500-a5e0-11e8-9eec-a1e9176e6046.png)
 
 ![](https://user-images.githubusercontent.com/6214084/44435639-65dde400-a5e3-11e8-897b-68abee224a03.png)
 
-
-![](https://user-images.githubusercontent.com/6214084/44436734-48137d80-a5e9-11e8-9a58-d7635cfb1522.png)
-
-![](https://user-images.githubusercontent.com/6214084/44436737-4d70c800-a5e9-11e8-8455-32dbd57478e4.png)
 
