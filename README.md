@@ -10,7 +10,7 @@ V2RAY WHMCS 900元模块
 
 Added a subscription copy and paste function
 
-有问题ISUSS TG群 https://t.me/joinchat/Gc7hiUtsO-xaftop5NSf8Q
+有问题ISUSS TG群
 contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
 
 
