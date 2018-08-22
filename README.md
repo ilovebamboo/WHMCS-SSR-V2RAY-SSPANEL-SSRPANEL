@@ -20,9 +20,9 @@ contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
 
 需要看演示的 安装远程https://www.teamviewer.com/zhCN/ 邀请测试
 
-![](https://user-images.githubusercontent.com/6214084/44436734-48137d80-a5e9-11e8-9a58-d7635cfb1522.png)
+![artboard](https://user-images.githubusercontent.com/6214084/44437903-23220900-a5ef-11e8-8eb2-e7234c267499.png)
+![preview1](https://user-images.githubusercontent.com/6214084/44437904-23ba9f80-a5ef-11e8-82c6-d0416eec2004.png)
 
-![artboard2](https://user-images.githubusercontent.com/6214084/44436822-dc7de000-a5e9-11e8-883f-5c3dedea93d1.png)
 
 定制各类客户端
 ![](https://user-images.githubusercontent.com/6214084/44435046-bd2e8500-a5e0-11e8-9eec-a1e9176e6046.png)
