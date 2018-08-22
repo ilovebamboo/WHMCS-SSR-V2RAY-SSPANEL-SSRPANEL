@@ -8,7 +8,6 @@ WHMCS 模板300 SSR 300模块Surge 300订阅 短信中心300 网卡补偿加速
 
 V2RAY WHMCS 900元模块
 
-Added a subscription copy and paste function
 
 有问题ISUSS TG群
 contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
