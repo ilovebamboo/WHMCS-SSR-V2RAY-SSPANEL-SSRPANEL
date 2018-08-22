@@ -20,7 +20,7 @@ contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
 
 ![](https://user-images.githubusercontent.com/6214084/44436734-48137d80-a5e9-11e8-9a58-d7635cfb1522.png)
 
-![](https://user-images.githubusercontent.com/6214084/44436737-4d70c800-a5e9-11e8-8455-32dbd57478e4.png)
+![artboard2](https://user-images.githubusercontent.com/6214084/44436822-dc7de000-a5e9-11e8-883f-5c3dedea93d1.png)
 
 定制各类客户端
 ![](https://user-images.githubusercontent.com/6214084/44435046-bd2e8500-a5e0-11e8-9eec-a1e9176e6046.png)
