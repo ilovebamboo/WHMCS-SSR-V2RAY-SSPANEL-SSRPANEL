@@ -1,4 +1,4 @@
-# WHMCS7 Legendsock 3.0 Subscription function
+# 定制各类客户端 5500 
 
 Legendsock 3.0
 
@@ -15,7 +15,7 @@ contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
 
 
 
-开通注册送10美元免费2个月	https://www.linode.com/?r=2cece9213a6c08d94a1b64bb994d445962f52f19
+开通注册送20美元免费2个月	https://www.linode.com/?r=2cece9213a6c08d94a1b64bb994d445962f52f19
 
 出WHMCS 模块看issues  
 ![](https://user-images.githubusercontent.com/6214084/44065117-7a3c65c8-9f9b-11e8-8f99-5571f4c93047.png)
