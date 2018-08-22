@@ -5,7 +5,7 @@ Legendsock 3.0
 WHMCS 模板300 SSR 300模块Surge 300订阅 短信中心300 网卡补偿加速
 免费送V2RAY SSR线路体验
 
-Client custom demo
+
 V2RAY WHMCS 900元模块
 
 Added a subscription copy and paste function
