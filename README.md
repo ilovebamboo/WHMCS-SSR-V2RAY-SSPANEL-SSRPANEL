@@ -24,6 +24,10 @@ contacts me:https://t.me/WHMCSSSRSSPANELV2RAY
 ![preview1](https://user-images.githubusercontent.com/6214084/44438062-063a0580-a5f0-11e8-8392-83b08f798904.png)
 
 
+要饭 
+![](https://user-images.githubusercontent.com/6214084/46395710-d23e1e00-c71f-11e8-8e60-0d11aa9c2e26.gif)
+
+https://ko-fi.com/S6S7KDZ0
 
 定制各类客户端
 ![](https://user-images.githubusercontent.com/6214084/44435046-bd2e8500-a5e0-11e8-9eec-a1e9176e6046.png)
