@@ -34,4 +34,6 @@ https://ko-fi.com/S6S7KDZ0
 
 ![](https://user-images.githubusercontent.com/6214084/44435639-65dde400-a5e3-11e8-897b-68abee224a03.png)
 
+![](https://user-images.githubusercontent.com/6214084/47711127-6d6ada80-dc6f-11e8-8e71-a8057d304104.png)
 
+![](https://user-images.githubusercontent.com/6214084/47711154-81aed780-dc6f-11e8-80af-0f31833ba4a5.png)
