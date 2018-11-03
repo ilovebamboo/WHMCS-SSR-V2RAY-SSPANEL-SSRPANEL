@@ -30,11 +30,11 @@ https://ko-fi.com/S6S7KDZ0
 
 ![](https://user-images.githubusercontent.com/6214084/44435046-bd2e8500-a5e0-11e8-9eec-a1e9176e6046.png)
 
-![](https://user-images.githubusercontent.com/6214084/47946929-d42d1400-df4d-11e8-81a2-e7b62bdc7ac5.png)
-
 ![](https://user-images.githubusercontent.com/6214084/44435639-65dde400-a5e3-11e8-897b-68abee224a03.png)
 
 ![](https://user-images.githubusercontent.com/6214084/47946604-e193cf80-df48-11e8-8690-2dcaaf65032a.png)
+
+![](https://user-images.githubusercontent.com/6214084/47946977-cdeb6780-df4e-11e8-927b-df87b6763465.png)
 
 ![](https://user-images.githubusercontent.com/6214084/47907621-8e793880-dec6-11e8-9700-de23f88b3831.png)
 
