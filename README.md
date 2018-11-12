@@ -28,6 +28,8 @@ https://ko-fi.com/S6S7KDZ0
 
 定制各类客户端
 
+![superx](https://user-images.githubusercontent.com/6214084/48331286-9a18ec00-e68a-11e8-8e4c-cabedbdde321.gif)
+
 ![](https://user-images.githubusercontent.com/6214084/44435046-bd2e8500-a5e0-11e8-9eec-a1e9176e6046.png)
 
 ![](https://user-images.githubusercontent.com/6214084/44435639-65dde400-a5e3-11e8-897b-68abee224a03.png)
