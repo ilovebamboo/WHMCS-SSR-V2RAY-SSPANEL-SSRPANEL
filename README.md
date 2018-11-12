@@ -43,6 +43,7 @@ https://ko-fi.com/S6S7KDZ0
 ![](https://user-images.githubusercontent.com/6214084/47711127-6d6ada80-dc6f-11e8-8e71-a8057d304104.png)
 
 ![](https://user-images.githubusercontent.com/6214084/47711154-81aed780-dc6f-11e8-80af-0f31833ba4a5.png)
+[宣传片头 将.zip删除即可观看视频](https://github.com/ilovebamboo/WHMCS-SSR-V2RAY-SSPANEL-SSRPANEL/files/2568089/alert.mp4.zip)
 
 
 
