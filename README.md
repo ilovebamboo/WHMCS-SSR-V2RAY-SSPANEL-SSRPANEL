@@ -21,10 +21,10 @@ contacts me:https://t.me/SuperX007
 需要看演示的 安装远程https://www.teamviewer.com/zhCN/ 邀请测试
 
 
-要饭 
+ 
 ![](https://user-images.githubusercontent.com/6214084/46395710-d23e1e00-c71f-11e8-8e60-0d11aa9c2e26.gif)
 
-https://ko-fi.com/S6S7KDZ0
+ 
 
 定制各类客户端
 
